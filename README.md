@@ -1,1 +1,1 @@
-assalam alaikum
+assalamualaikum
